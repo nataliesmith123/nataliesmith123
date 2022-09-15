@@ -12,6 +12,7 @@ Please get in touch!
 
 More info: 
 * Here's my current [CV](https://github.com/nataliesmith123/nataliesmith123/files/9577371/NRSmith_CV_09-15-22.pdf)
+* Google scholar [page](https://scholar.google.com/citations?user=pP7qJZ8AAAAJ&hl=en)
 * [@_NatRSmith](https://twitter.com/_NatRSmith)
 
 And finally, my beautiful dog Rose:
