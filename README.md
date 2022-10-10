@@ -16,5 +16,6 @@ More info:
 * [@_NatRSmith](https://twitter.com/_NatRSmith)
 
 And finally, my beautiful dog Rose:
+![rose](https://user-images.githubusercontent.com/11410550/194927111-7c92a1a3-e33c-4bda-9196-ee88b86f5e3b.jpg)
 
-![PXL_20220110_160810832](https://user-images.githubusercontent.com/11410550/190466154-91426bed-ade7-4fd7-b764-b77017378e25.jpg)
+
