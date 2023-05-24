@@ -11,10 +11,8 @@ I completed my PhD in 2021 in Health Policy and Management at UNC Chapel Hill in
 Please get in touch!
 
 More info: 
-* Here's my current [CV](https://github.com/nataliesmith123/nataliesmith123/files/11020512/cv_03-20-23.pdf)
-* Google scholar [page](https://scholar.google.com/citations?user=pP7qJZ8AAAAJ&hl=en)
+* Here's my current [CV](https://github.com/nataliesmith123/nataliesmith123/files/11558387/cv.pdf)
+* Google scholar [page](https://scholar.google.com/citations?user=pP7qJZ8AAAAJ&hl=en)[cv.pdf]
+
 * [@_NatRSmith](https://twitter.com/_NatRSmith)
 
-And finally, my beautiful dog Rose:
-
-![rose_thumb](https://user-images.githubusercontent.com/11410550/194927324-744dd567-015d-4f51-b02d-0e04735585b0.jpg)
