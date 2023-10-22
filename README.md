@@ -15,3 +15,4 @@ More info:
 * Google scholar [page](https://scholar.google.com/citations?user=pP7qJZ8AAAAJ&hl=en)
 
 * [@_NatRSmith](https://twitter.com/_NatRSmith)
+* nataliesmith@hsph.harvard.edu
