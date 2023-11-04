@@ -5,7 +5,7 @@ My work aims to advance public health by generating tools and evidence to inform
 I am a research associate at the Harvard TH Chan School of Public Health. I am currently funded by a K99 via the National Cancer Institute. Prior to that funding, I was a cancer prevention [postdoc fellow](https://www.hsph.harvard.edu/cancer-prevention-fellowship/people/natalie-smith/) at the Harvard TH Chan School of Public Health. I'm mentored by Doug Levy, Karen Emmons, Davene Wright, and Kristen Hass
 miller Lich. I also held a [Pyle Fellowship](https://twitter.com/DeptPopMed/status/1556701937537585153) working with Dr. Davene Wright in the Department of Population Medicine/Harvard Pilgrim Health Care Institute. 
 
-I completed my PhD in 2021 in Health Policy and Management at UNC Chapel Hill in the Gillings School of Global Public Health, under the direction of Leah Frerichs. My main area of focus was Decision Sciences and Outcomes Research. From 2018-2021 I was a predoctoral trainee at the Carolina Population Center. The training program focuses on helping PhD students integrate approaches from the social and health sciences to address important public health problems. Before that, I earmed my MS in Biostatistics, also from UNC Chapel Hill.
+I completed my PhD in 2021 in Health Policy and Management at UNC Chapel Hill in the Gillings School of Global Public Health, under the direction of Leah Frerichs. Before that, I earmed my MS in Biostatistics, also from UNC Chapel Hill.
 
 Please get in touch!
 
